@@ -2,4 +2,4 @@
 
 ## Bret Michaels Tribute Page
 
-Read about Bret Michael's life and career
+Read about Bret's life and career
